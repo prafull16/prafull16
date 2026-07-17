@@ -1,1 +1,1 @@
-dekh li meri GitHub. agaya na maza ab mil gyi  
+dekh li meri GitHub. agaya nil gyi  
