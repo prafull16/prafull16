@@ -1,1 +1,0 @@
-dekh li meri GitHub. agaya nil gyi  
