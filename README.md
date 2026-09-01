@@ -1,1 +1,1 @@
-bilkul mt aoooo
+leave it na ywr
