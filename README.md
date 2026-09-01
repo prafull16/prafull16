@@ -1,1 +1,1 @@
-pr issue y h ki poster
+bilkul mt aoooo
